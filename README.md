@@ -1,1 +1,0 @@
-# kurkayabitva.io
